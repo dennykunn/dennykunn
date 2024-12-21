@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Saya Denny Firmansyah<br>👯 Bagi project dong <br>🌱 Lagi belajar memahami dia<br>💬 Tanya saya tentang Beberapa Languanges and Tools yang saya gunakan<br>⚡ Fun fact saya orang nya cepat bosan.
+🔭 Saya Denny Firmansyah<br>👯 Bagi project dong <br>🌱 Lagi belajar memahami dia<br>💬 Tanya saya kalau error<br>⚡ Fun fact saya orang nya cepat bosan.
 
 
 ## 🌐 Socials:
